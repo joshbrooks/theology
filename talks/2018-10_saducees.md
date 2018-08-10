@@ -10,7 +10,7 @@
 ## The Saducees were not asking for the same reasons we would ask this question
 
  - The Saducees took a very caring, loving provision from the Mosaic Law to trap Jesus with a question about resurrection for a trap
-   - They did not believe in the resurrection anyhow! 
+ - They did not believe in the resurrection anyhow! 
 > Acts 23:8 "For the Sadducees say that there is neither resurrection nor angel nor spirit..."
 
  - We are glad to have a more accurate knowledge revealed to us by the complete Word of God
@@ -19,10 +19,7 @@
 > 5  “If brothers dwell together and one of them dies without having a son, the wife of the dead one should not marry someone from outside the family. Her brother-in-law should go to her, take her as his wife, and perform brother-in-law marriage with her. 6  The firstborn whom she will bear will carry on the name of his dead brother,g so that his name may not be wiped out of Israel.
    - The comfort that the deceased one's portion of the promised land would be passed on to his children
    - Would ensure that the family line continued and that the widow would be provided for
-   - Example: in Ruth's time when the "closer relative" did not marry her
-> Ruth 4:10 
-> 10  I am also acquiring Ruth the Moʹab·i·tess, the wife of Mahʹlon, as a wife to restore the name of the dead man to his inheritance, so that the name of the dead man will not be cut off from among his brothers and from the city gate of his home. You are witnesses today.”
-
+   - Example: Similar situation you may recall in Ruth's time when Boaz' clever arrangement allowed him to marry rather than the "closer relative"
 The Sadducees did not ask out of concern for a widow such as Ruth - they asked it to trap Jesus
 
 ## We have a different point of view! We might gain more than the Saducees would have...
