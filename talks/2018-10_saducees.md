@@ -51,24 +51,8 @@ Jesus' words may also indicate that death has no power over those anointed ones 
   - His answer may have been intended for disciples - not for his opposers
   - Questions still remain - what of those who remarry? What of those who are ressurected to Heaven?
   - Is there anything we can come away with from the passage?
+  - If Jesus was, in fact, talking about the heavenly resurrection, then his words do not shed any light on whether resurrected ones on earth will be able to marry in the new world.
 
-## We have a beautiful hope in the future, whatever the case
+ ## So what can we use to encourage our brothers and sisters, especially in the light of this passage of scripture?
 
- Finale: We can be confident in any case that Jehovah has His people's desires and needs covered
- " We live on this earth sadly separated from Jehovah by sin"
- " We live in this system of things with the sadness of knowing that all of us will experience a separation from the ones we love by death, 
- and that ones we love might be saddened some day when we fall asleep, 
- but we retain this beautiful promise from our loving God Jehovah of a resurrection to eternal life with Him!"
- 
- ## How can we encourage brothers and sisters who may feel distressed by the prospect of not being sure?
-
-
- So what can we use to encourage our brothers and sisters, especially in the light of this passage of scripture?
- 
-  - Jesus answer tells us a little about the resurrection, but most importantly that it is real
-  - Reaffirms for us that Our future selves will experience a more complete life than even the best life we can imagine here in this system
-
-  - Let us not be discouraged by what we might lose in this life in death
-  - Let's look forward with joy to an existence where we experience Fully the peace, joy and fellowship we have a small taste of in this life, and which some brothers and sisters experience in the special relationship of marriage.
- 
-  *Jehovah will fulfill our needs and our desires!*
+ But of this we can be sure: Obedient humans will be happy, for Jehovah will satisfy all their needs and desires in the best possible way.—Ps. 145:16.
