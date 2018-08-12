@@ -50,9 +50,10 @@ Jesus' words may also indicate that death has no power over those anointed ones 
   - Is there anything we can come away with from the passage?
   - If Jesus was, in fact, talking about the heavenly resurrection, then his words aren't intended to tell us on whether resurrected ones on earth will be able to marry in the new world.
 
- ## So what can we use to encourage our brothers and sisters, especially in the light of this passage of scripture?
- - We can't be certain of Jesus' words here and what they refer to. 
- - Jesus concluded his talking with the Sadducees with reinforcement of the resurrection being a real event, but we can't say for certain what state our relationships will survice in after the resurrection
- - But of this we can be sure: Obedient humans will be happy, for Jehovah will satisfy all their needs and desires in the best possible way.—Ps. 145:16.
+ ## Encourage our brothers and sisters, especially in the light of this passage of scripture?
+ - We may not be sure of how our relationships would be formed in the new world, but we can be sure that
+ - Jehovah will satisfy all their needs and desires in the best possible way.—Ps. 145:16.
 > 16  You open your hand
 And satisfy the desire of every living thing.
+
+Lets keep this in mind, that Jehovah will satisfy the desires of every living thing in the new world. That includes married, singled, those who have lost loved ones, and those who have already fallen asleep. That's a promise which encourages us and which we can use to encourage others in difficult situations, which holds true under any future circumstances in the new works. 
